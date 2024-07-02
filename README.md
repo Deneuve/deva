@@ -1,2 +1,0 @@
-# deva
-cahaya dalam kegelapan
